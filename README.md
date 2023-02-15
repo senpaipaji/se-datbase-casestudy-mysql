@@ -1,2 +1,1 @@
 # SE_DATABASE-CASESTUDY
-Pandu Zindabaad
