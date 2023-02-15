@@ -1,3 +1,2 @@
 # SE_DATABASE-CASESTUDY
-teri maa ki chut
-
+Your Mother's Fanny
